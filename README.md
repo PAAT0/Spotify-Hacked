@@ -8,7 +8,7 @@ Unleash the full potential of Spotify with Spotify Unlocked – a cracked, modde
 #### CREATE UNLIMITED PLAYLISTS 📂 – Organize your favorite tracks freely.
 #### SKIP WITHOUT LIMITS ⏩ – Unlimited skips, no playback restrictions.
 #### ALL PREMIUM FEATURES INCLUDED ⭐ – Everything Spotify Premium offers, unlocked for you!
-#### Ready to take your music experience to the next level? 🔥
+### Ready to take your music experience to the next level? 🔥
 
 ## How It Works:
 
