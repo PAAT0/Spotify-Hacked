@@ -3,7 +3,7 @@ Unleash the full potential of Spotify with Spotify Unlocked – a cracked, modde
 
 ## Spotify Unlocked Features 🎵🚀
 #### NO ADS 🚫 – Enjoy uninterrupted music without annoying ads.
-#### SPOTIFY MARKETPLACE  – Full access without restrictions.
+#### SPOTIFY MARKETPLACE 🛒 – Full access without restrictions.
 #### FREE THEMES & CUSTOMIZATION 🎨 – Personalize your Spotify experience.
 #### CREATE UNLIMITED PLAYLISTS 📂 – Organize your favorite tracks freely.
 #### SKIP WITHOUT LIMITS ⏩ – Unlimited skips, no playback restrictions.
