@@ -17,10 +17,17 @@ Unleash the full potential of Spotify with Spotify Unlocked – a cracked, modde
 Have Spotify installed from the browser, the one from the Microsoft Store doesn't work.
 https://www.spotify.com/es/download/other/
 
+### Second step:
+Download SpotifyHacked.bat from this repository.
 
-## How to Make Linkboard Open in a New Tab:
+### Third step:
+Open the file and follow the video tutorial
+⚠️Remember that it is not the Spotify app, it is a crack, you need to have the app installed⚠️
 
-https://github.com/user-attachments/assets/424aa8f9-f6d2-4f91-928a-18c19d18be1f
+### Video Tutorial:
 
-NEW VERSION UPDATE 1.1
-This is a beta version (v1.1) More links, apps, and updates will be added in future releases. Stay tuned!
+https://github.com/user-attachments/assets/8f41d6d9-8354-4953-9bc8-52d398e86b41
+
+# Disclaimer ⚠️
+This script was not created by me; It's a reupload I made with detailed tutorials and video guides to explain how to use it effectively.
+I am not responsible for how this script is used. Please support the original developer @Daksh777 by using the official script. Use this at your own risk. 🚨
