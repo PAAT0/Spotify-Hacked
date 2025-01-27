@@ -2,7 +2,6 @@
 Unleash the full potential of Spotify with Spotify Unlocked – a cracked, modded, and hacked version that lets you experience unlimited features like a true pirate. Say goodbye to restrictions and enjoy a seamless, bypassed experience with Spotify Hacked!
 
 ## Spotify Unlocked Features 🎵🚀
-- - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -
 #### NO ADS 🚫 – Enjoy uninterrupted music without annoying ads.
 #### NO MARKETPLACE LIMITATIONS – Full access without restrictions.
 #### FREE THEMES & CUSTOMIZATION 🎨 – Personalize your Spotify experience.
