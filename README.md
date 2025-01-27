@@ -28,6 +28,9 @@ Open the file and follow the video tutorial
 
 https://github.com/user-attachments/assets/8f41d6d9-8354-4953-9bc8-52d398e86b41
 
+## Note: 
+If you ever notice that your Spotify crack is removed for a while and the ads come back, run the script again just like the first time.
+
 # Disclaimer ⚠️
 This script was not created by me; It's a reupload I made with detailed tutorials and video guides to explain how to use it effectively.
 I am not responsible for how this script is used. Please support the original developer @Daksh777 by using the official script. Use this at your own risk. 🚨
