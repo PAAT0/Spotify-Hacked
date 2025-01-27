@@ -11,9 +11,12 @@ Unleash the full potential of Spotify with Spotify Unlocked – a cracked, modde
 - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - - -
 #### Ready to take your music experience to the next level? 🔥
 
-## How It Works:
+## How To Install:
 
-https://github.com/user-attachments/assets/65b5b2a0-6107-412c-a727-4864d5401496
+### First step: 
+Have Spotify installed from the browser, the one from the Microsoft Store doesn't work.
+https://www.spotify.com/es/download/other/
+
 
 ## How to Make Linkboard Open in a New Tab:
 
